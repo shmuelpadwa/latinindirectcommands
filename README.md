@@ -8,7 +8,7 @@ This can be a present or imperfect subjunctive.
 
 Note that this is very similar to purpose clauses.
 
-In English, these use the infitnite. Example : My mom asked me to eat.
+In English, these use the infinitive. Example : My mom asked me to eat.
 
 Three common commands take the dative for the person being commanded. These are:
 
